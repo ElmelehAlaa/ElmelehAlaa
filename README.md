@@ -5,3 +5,9 @@ Ho lavorato su una varietà di progetti che mettono in pratica questi principi, 
 Se stai cercando uno sviluppatore full stack junior con competenze specifiche, non esitare a contattarmi. Possiamo creare progetti entusiasmanti e di successo!
 
 How to reach me alaa.elmeleh@outlook.it
+
+![image](https://github.com/ElmelehAlaa/ElmelehAlaa/assets/137798435/5523c348-c1e1-48fb-88b2-ca069c0cb35b)
+
+
+
+
